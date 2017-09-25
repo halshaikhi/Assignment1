@@ -1,2 +1,2 @@
 # Assignment1
-##My name is hayyas alshikhi
+##My name is Hayyas Alshaikhi 
